@@ -1,5 +1,2 @@
-# Blooket-Cheats
-Cheats for blooket that are up to date
-If you copy my code, then im telling!!!
-By the way I love you all
-# PRIDE
+# Blooket Cheats
+Oh yeah Shoutout to crypto dude something for being a big fat idiot and stealing my code
